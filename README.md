@@ -1,2 +1,2 @@
 # trytry
-for C Prog seatwork
+di dapat iiba toh
