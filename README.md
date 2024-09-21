@@ -1,2 +1,1 @@
-# trytry
-for C Prog seatwork
+pogi si bello at adam
