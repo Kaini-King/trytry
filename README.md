@@ -3,6 +3,7 @@ pogi si bello at adam
 
 for C Prog seatwork
 LETS GO ECE-YOUTH!
+Kumakain ka ba ng ginisang bangkal?
 
 di dapat iiba toh
 imissu12345
