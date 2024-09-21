@@ -1,2 +1,2 @@
 # trytry
-for C Prog seatwork
+dito kayo mag pull
